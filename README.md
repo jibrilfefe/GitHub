@@ -86,7 +86,9 @@ Zidane a mis fin à sa carrière après avoir joué la finale de la Coupe du Mon
 ------------------------
 
 [Ronaldo](https://www.realmadrid.com/fr-FR/le-club/histoire/legendes-football/cristiano-ronaldo-dos-santos-aveiro)
+
 [Di Stéfano](https://www.realmadrid.com/fr-FR/le-club/histoire/legendes-football/alfredo-di-stefano-laulhe)
+
 [Zidane](https://www.realmadrid.com/fr-FR/le-club/histoire/legendes-football/zinedine-zidane)
 
 
